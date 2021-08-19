@@ -2,7 +2,7 @@
 
 :timer_clock: **Total**: 15 min
 
-:person_frowning: Serve **37 pessoas**
+:woman: Serve **37 pessoas**
 
 :fork_and_knife: **Porções:** 6
 
